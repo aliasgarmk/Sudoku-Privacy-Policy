@@ -30,4 +30,4 @@ If we ever update this Privacy Policy, we will update the "Last updated" date at
 
 If you have any questions about this Privacy Policy, please contact us at:
 
-**Email:** [your-email@example.com]
+**Email:** aliasgarmk@gmail.com
